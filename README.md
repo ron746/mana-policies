@@ -217,3 +217,4 @@ This policy is governed by the laws of the State of California, United States. D
 ---
 
 *Last updated May 20, 2026. Mana Athletic LLC. RunMana is a product of Mana Athletic LLC.*
+
